@@ -1,16 +1,27 @@
-## Hi there 👋
+<img width="734" height="345" alt="image" src="https://github.com/user-attachments/assets/369b005f-a779-4472-81f2-1b33bdbad436" />
 
-<!--
-**Ghxzt13/Ghxzt13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+    ╔═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╗
+      ₊‧.°.⋆ Welcome ! •˚₊‧⋆.
+        ⊹₊ ㆍ✿ㆍZeroㆍ✿ㆍ₊⊹
+           ⊹ ˚ . 17 ｡ﾟ⋆ 
+             ⋆He/They⋆
+    ╚═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╝
+        Spokwn For ~ Flavor Foley
+      ◁◁    ▐ ▌     ▷▷
+    2:18━━━━━━━━━━♡━━━2:55
+      volυмe : ▁▂▃▄▅▆▇▉
+    
+<img width="300" height="920" alt="image" src="https://github.com/user-attachments/assets/512f48fc-6c12-4d38-b3c8-71ccdf988fb3" />
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+      ✦ 𝑩𝒐𝒖𝒏𝒅𝒂𝒓𝒊𝒆𝒔
+     |  No: 
+          Copying my Skins
+     |  Ask: 
+          Inspo From my Skins
+          Role-Play
+          Ship Int
+     |  Yes:
+         Cuddles
+         Kisses
+    ╰ ➤ (" 'a bed that faces the door... shall be haunted by a ghost of horror ' ")
+    
