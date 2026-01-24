@@ -6,7 +6,7 @@
            ⊹ ˚ . 17 ｡ﾟ⋆ 
              ⋆He/They⋆
     ╚═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╝
-        Spokwn For ~ Flavor Foley
+        Spoken For ~ Flavor Foley
       ◁◁    ▐ ▌     ▷▷
     2:18━━━━━━━━━━♡━━━2:55
       volυмe : ▁▂▃▄▅▆▇▉
