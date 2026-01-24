@@ -1,5 +1,7 @@
 <img width="734" height="345" alt="image" src="https://github.com/user-attachments/assets/369b005f-a779-4472-81f2-1b33bdbad436" />
+
 # ⌒⌒ . 𝘴𝘵𝘢𝘳𝘵 𝗯𝗲𝗳𝗼𝗿𝗲 𝘺𝘰𝘶'𝘳𝘦 𝗿𝗲𝗮𝗱𝘆 》 𓆩♡𓆪
+   
     ╔═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╗
       ₊‧.°.⋆ Welcome ! •˚₊‧⋆.
         ⊹₊ ㆍ✿ㆍZeroㆍ✿ㆍ₊⊹
