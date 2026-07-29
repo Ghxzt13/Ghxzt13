@@ -4,7 +4,7 @@
       ₊‧.°.⋆ Welcome ! •˚₊‧⋆.
         ⊹₊ ㆍ✿ㆍZeroㆍ✿ㆍ₊⊹
            ⊹ ˚ . 17 ｡ﾟ⋆ 
-             ⋆He/They⋆
+             ⋆They/Zem⋆
     ╚═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╝
         Spoken For ~ Flavor Foley
       ◁◁    ▐ ▌     ▷▷
@@ -32,7 +32,8 @@
     𝐃𝐍I - racist , sexist , homophobic .⋆｡⋆˚｡⋆ 
        (๑/////๑ " ) 𝐁𝐌𝐅 - Hu Tao main , Danganronpa fan ,  Anyone -w-
           main fandomz i'm in ^_^ : 
-        ─ " Genshin "
+        ─ " BFDI/II "
         ─ "Danganronpa"
         ─ "Ace Attorney"
-        ─ "Hazbin Hotel"
+        ─ "CRK"
+        
