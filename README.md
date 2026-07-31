@@ -20,10 +20,15 @@
           Inspo From my Skins
           Role-Play
           Ship Int
+          Cover
      |  Yes:
          Cuddles
          Kisses
     ╰ ➤ (" 'a bed that faces the door... shall be haunted by a ghost of horror ' ")
+    
+    Warnings : 
+       I Get Overwhelmed Easily
+          I Do Tend to Have Troubles Bringing Myself to Talk/Type
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
