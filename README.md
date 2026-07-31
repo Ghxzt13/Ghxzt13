@@ -19,7 +19,6 @@
      |  Ask: 
           Inspo From my Skins
           Role-Play
-          Ship Int
           Cover
      |  Yes:
          Cuddles
