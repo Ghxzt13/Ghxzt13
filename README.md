@@ -36,8 +36,12 @@
     𝐃𝐍I - racist , sexist , homophobic .⋆｡⋆˚｡⋆ 
        (๑/////๑ " ) 𝐁𝐌𝐅 - Hu Tao main , Danganronpa fan ,  Anyone -w-
           main fandomz i'm in ^_^ : 
-        ─ " BFDI/II "
+        ─ " BFDI "
+        ─ " II "
+        ─ " ITFT "
         ─ "Danganronpa"
         ─ "Ace Attorney"
         ─ "CRK"
-        
+        ─ " Genshin Impact "
+        ─ " Animal Hospital "
+        ─ " TADC "
