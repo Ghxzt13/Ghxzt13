@@ -81,3 +81,4 @@
 
  ✦  "Genshin Impact" ✦  "Animal Hospital"  ✦  "TADC"
 ```
+<img width="734" height="293" alt="image" src="https://github.com/user-attachments/assets/21bb0e5d-df90-46f1-9b8e-23d967155859" />
