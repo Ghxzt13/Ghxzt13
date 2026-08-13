@@ -1,7 +1,7 @@
 
 # ── ✦ 𝘴𝘵𝘢𝘳𝘵 𝗯𝗲𝗳𝗼𝗿𝗲 𝘺𝘰𝘶'𝘳𝘦 𝗿𝗲𝗮𝗱𝘆 ── 𓆩♡𓆪
 
-<div align="center">
+       <div align="center">
 
 ```text
        .  ● .  ✦  .  • .  ✶ .  ● .
