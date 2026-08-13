@@ -1,67 +1,53 @@
-# ⌒⌒ . 𝘴𝘵𝘢𝘳𝘵 𝗯𝗲𝗳𝗼𝗿𝗲 𝘺𝘰𝘶'𝘳𝗲 𝗿𝗲𝗮𝗱𝘆 》 𓆩♡𓆪
+# ── ✦ 𝘴𝘵𝘢𝘳𝘵 𝗯𝗲𝗳𝗼𝗿𝗲 𝘺𝘰𝘶'𝘳𝘦 𝗿𝗲𝗮𝗱𝘆 ── 𓆩♡𓆪
    
 <div align="center">
 
 ```text
-╔═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╗
-  ₊‧.°.⋆ Welcome ! •˚₊‧⋆.
-    ⊹₊ ㆍ✿ㆍZeroㆍ✿ㆍ₊⊹
-       ⊹ ˚ . 17 ｡ﾟ⋆ 
-         ⋆They/Zem⋆
-╚═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╝
+       .  ● .  ✦  .  • .  ✶ .  ● .
+   ╔═════════════════════════════════╗
+   ║  ₊‧.°.⋆  𝕎𝕖𝕝𝕔𝕠𝕞𝕖 𝕥𝕠 𝕥𝕙𝕖 𝕍𝕠𝕚𝕕  ⋆.°.‧₊ ║
+   ║       ⊹₊ ㆍ✦ㆍ𝐙𝐞𝐫𝐨ㆍ✦ㆍ₊⊹        ║
+   ║          ⊹ ˚ . 𝟙𝕏𝕍𝕀𝕀 ｡ﾟ⋆        ║
+   ║            ⋆𝖳𝗁𝖾𝗒/𝖹𝖾𝗆⋆            ║
+   ╚═════════════════════════════════╝
+       .  • .  ✶ .  ● .  ✦  .  • .
 ```
 
-Spoken For ~ Flavor Foley
-◁◁    ▐ ▌     ▷▷
-2:18━━━━━━━━━━♡━━━2:55
-volυмe : ▁▂▃▄▅▆▇▉
+*𝘚𝘱𝘰𝘬𝘦𝘯 𝘍𝘰𝘳 ~ 𝘍𝘭𝘢𝘷𝘰𝘳 𝘍𝘰𝘭𝘦ยว*
+◁◁      ▐ ▌      ▷▷
+𝟸:𝟷𝟾 ━━━━━━━ 🝮 ━━━━━━━ 𝟸:𝟻𝟻
+ᴠᴏʟᴜᴍᴇ : ▁▂▃▄▅▆▇▉
 
 </div>
       
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+𓆩✧𓆪 ───────────────────────────────────────────────────────────── 𓆩✧𓆪
 
 ### ✦ 𝑩𝒐𝒖𝒏𝒅𝒂𝒓𝒊𝒆𝒔
-* **No:** Copying my Skins
-* **Ask:** Inspo From my Skins | Role-Play | Cover
-* **Yes:** Cuddles | Kisses
+* ── **𝖭𝗈 :** *𝖢𝗈𝗉𝗒𝗂𝗇𝗀 𝗆𝗒 𝗌𝗄𝗂𝗇𝗌*
+* ── **𝖳𝗈 𝖠𝗌𝗄 :** *𝖨𝗇𝗌𝗉𝗈 𝖿𝗋𝗈𝗆 𝗆𝗒 𝗌𝗄𝗂𝗇𝗌 ⊹ 𝖱𝗈𝗅𝖾-𝗉𝗅𝖺𝗒 ⊹ 𝖢𝗈𝗏𝖾𝗋𝗌*
+* ── **𝖸𝖾𝗌 :** *𝖢𝗎𝖽𝖽𝗅𝖾𝗌 𝖺𝗇𝖽 𝗄𝗂𝗌𝗌𝖾𝗌*
 
-> ╰ ➤ *"a bed that faces the door... shall be haunted by a ghost of horror"*
+> ✦ *“ ...a bed that faces the door shall be haunted by a ghost of horror ”*
     
-**Warnings:** 
-* I Get Overwhelmed Easily
-* I Do Tend to Have Troubles Bringing Myself to Talk/Type
+✦ **𝖭𝗈𝗍𝖾𝗌 & 𝖶𝖺𝗋𝗇𝗂𝗇𝗀𝗌 :** 
+* *𝖨 𝗀𝖾𝗍 𝗈𝗏𝖾𝗋𝗐𝗁𝖾𝗅𝗆𝖾𝖽 𝗊𝗎𝗂𝗍𝖾 𝖾𝖺𝗌𝗂𝗅𝗒.*
+* *𝖨 𝗈𝖿𝗍𝖾𝗇  Bruges 𝗍𝗋𝗈𝗎𝖻𝗅𝖾 𝖻𝗋𝗂𝗇𝗀𝗂𝗇𝗀 𝗆𝗒𝗌𝖾𝗅𝖿 𝗍𝗈 𝗍𝖺𝗅𝗄 𝗈𝗋 𝗍𝗒𝗉𝖾.*
 
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+𓆩✧𓆪 ───────────────────────────────────────────────────────────── 𓆩✧𓆪
 
-### 〄 𝗕𝗨𝗥𝗡𝗜𝗡𝗚 𝗪𝗜𝗧𝗛 𝗠𝗬 𝗙𝗘𝗟𝗟𝗢𝗪 ISFP's ~
-❥ Libra ,, Artist ,, Writer
+### 🝮 𝗕𝗨𝗥𝗡𝗜𝗡𝗚 𝗪𝗜𝗧𝗛 𝗠𝗬 𝗙𝗘𝗟𝗟𝗢𝗪 𝖨𝖲𝖥𝖯'𝗌 ──
+*𝖫𝗂𝖻𝗋𝖺 ⊹ 𝖠𝗋𝗍𝗂𝗌𝗍 ⊹ 𝖶𝗋𝗂𝗍𝖾𝗋*
 
-**𝐃𝐍I:** racist , sexist , homophobic .⋆｡⋆˚｡⋆ 
-(๑/////๑ " ) **𝐁𝐌𝐅:** Hu Tao main , Danganronpa fan , Anyone -w-
+* ── **𝖣𝖭𝖨 :** *𝖱𝖺𝖼𝗂𝗌𝗍, 𝗌𝖾𝖼𝗍𝖺𝗋𝗂𝖺𝗇, 𝗌𝖾𝗑𝗂𝗌𝗍, 𝗁𝗈𝗆𝗈𝗉𝗁𝗈𝖻𝗂𝖼 .*
+* ── **𝖡𝖬𝖥 :** *𝖧𝗎 𝖳𝖺𝗈 𝗆𝖺𝗂𝗇𝗌, 𝖣𝖺𝗇𝗀𝖺𝗇𝗋opa 𝖿𝖺𝗇𝗌, 𝖺𝗇𝗒𝗈𝗇𝖾 𝗐𝗂𝗍𝗁 𝖺 𝗄𝗂𝗇𝖽 𝗌𝗈𝗎𝗅*
 
-#### ᴍᴀɪɴ ғᴀɴᴅᴏᴍs ɪ'ᴍ ɪɴ ^_^ : 
-* ─ " BFDI "
-* ─ " II "
-* ─ " ITFT "
-* ─ " Danganronpa "
-* ─ " Ace Attorney "
-* ─ " CRK "
-* ─ " Genshin Impact "
-* ─ " Animal Hospital "
-* ─ " TADC "
+#### ── 𝖬𝖺𝗂𝗇 𝖥𝖺𝗇𝖽𝗈𝗆𝗌
+```text
+ 🝮  "BFDI"           🝮  "II"               🝮  "ITFT"
+ 🝮  "Danganronpa"    🝮  "Ace Attorney"     🝮  "CRK"
+ 🝮  "Genshin Impact" 🝮  "Animal Hospital"  🝮  "TADC"
+```
 
 <br>
 
 <div align="center">
-
-### 📊 My GitHub Stats
-
-</div>
-
-<p align="center">
-  <img src="https://vercel.app" alt="Zero's GitHub Stats" />
-</p>
-
-<p align="center">
-  <img src="https://herokuapp.com" alt="GitHub Streak" />
-</p>
