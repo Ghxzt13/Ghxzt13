@@ -84,6 +84,8 @@
 <div align="center">
 <img width="734" height="293" alt="image" src="https://github.com/user-attachments/assets/21bb0e5d-df90-46f1-9b8e-23d967155859" />
 
+
 # Who Am I Usually ?
 
-<img width="400" height="400" alt="download (1)" src="https://github.com/user-attachments/assets/aab58262-4e75-477b-9d46-47e1e0d5deb8" />
+<img width="400" height="400" alt="download (1)" src="https://github.com/user-attachments/assets/aab58262-4e75-477b-9d46-47e1e0d5deb8" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/534dbd8b-b5cc-4275-a67c-46ae6879aff5" />
+
