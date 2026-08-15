@@ -87,5 +87,5 @@
 
 # Who Am I Usually ?
 
-<img width="400" height="400" alt="download (1)" src="https://github.com/user-attachments/assets/aab58262-4e75-477b-9d46-47e1e0d5deb8" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/0599f576-3bf0-4040-9f67-48b133765a1e" />
+<img width="400" height="400" alt="download (1)" src="https://github.com/user-attachments/assets/aab58262-4e75-477b-9d46-47e1e0d5deb8" /><img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/0599f576-3bf0-4040-9f67-48b133765a1e" />
 
